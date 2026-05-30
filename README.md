@@ -1,4 +1,4 @@
-# The Agastya Advanced Wheelchair
+# The Agastya ADVANCED Wheelchair
 
 Idea curated in April 2026
 
